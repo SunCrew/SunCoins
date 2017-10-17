@@ -1,0 +1,2 @@
+# SunCoins
+ICO
